@@ -1,3 +1,4 @@
+Privacy Policy
 Last updated: May 21, 2024
 
 1. Introduction
